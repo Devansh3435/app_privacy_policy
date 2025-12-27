@@ -119,9 +119,3 @@ If you have any questions or concerns regarding this Privacy Policy or the Appli
 
 **Devansh Joshi**
 📧 **[joshidevansh999@gmail.com](mailto:joshidevansh999@gmail.com)**
-
-* Fill **Play Store Data Safety form answers**
-* Write **About / Disclaimer page for the app**
-* Review your **AdMob ad logic**
-
-Just say the word 👍
