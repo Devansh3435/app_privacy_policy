@@ -103,7 +103,7 @@ This Privacy Policy may be updated from time to time. Any changes will be reflec
 
 ## **Effective Date**
 
-This Privacy Policy is effective as of **January 1, 2025**.
+This Privacy Policy is effective as of **January 1, 2026**.
 
 ---
 
